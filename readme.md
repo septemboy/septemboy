@@ -1,9 +1,9 @@
 ### Hi there 👋 Nice to see u.
 
-- 😄 My name is: yourname ...
-- ⚡ Student id: ...
+- 😄 My name is: yourname Thanaphat Jegwong
+- ⚡ Student id: 63362587
 - 🔭 I'm currently studying on Faculty of Engineering.
-
+- 🖥️ I'm interesting in Computet network because it's my favorite part
 ## Developer Tech
 
 ### Frameworks 
