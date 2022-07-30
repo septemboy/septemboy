@@ -7,6 +7,7 @@
 - ⚡ Student id: 63362587
 - 🔭 I'm currently studying on Faculty of Engineering.
 - 🖥️ I'm interesting in Computet network because it's my favorite part
+- ☕ My dream job is to be Barista
 ## Developer Tech
 
 ### Frameworks 
