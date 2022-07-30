@@ -1,4 +1,4 @@
-[![image](https://pbs.twimg.com/media/FU3OMdyacAAqMED.jpghttps://scontent.fphs4-1.fna.fbcdn.net/v/t39.30808-6/296177726_115302984584533_7140380662400540039_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=e3f864&_nc_ohc=OISLsX5az6sAX-C1fqx&tn=aADoMPLlU_8ezJWT&_nc_ht=scontent.fphs4-1.fna&oh=00_AT_4G1DOUASFlMSk2BHedunzIHUOH73tdRdEMKD-BTV7wg&oe=62EAED13)](#)
+[![image](https://pbs.twimg.com/media/FU3OMdyacAAqMED.jpg)](#)
 
 
 ### Hi there 👋 Nice to see u.
