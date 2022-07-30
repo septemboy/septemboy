@@ -1,4 +1,4 @@
-[![image](https://pbs.twimg.com/media/FU3OMdyacAAqMED.jpg)](#)
+[![image](https://adaymagazine.com/wp-content/uploads/2020/02/Type-B_Featured-ggg-scaled.jpg)](#)
 
 
 ### Hi there 👋 Nice to see u.
